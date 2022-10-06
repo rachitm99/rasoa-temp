@@ -1,1 +1,0 @@
-Rinkiya ke papa
